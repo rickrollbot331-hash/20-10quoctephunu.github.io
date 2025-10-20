@@ -1,1 +1,1 @@
-# 20-10quoctephunu.github.io
+https://yourusername.github.io/20-10-greeting/
